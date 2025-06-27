@@ -1,1 +1,1 @@
-# erm I make FiveM scripts ig
+# hello, I make fivem scripts & websites that about it.
